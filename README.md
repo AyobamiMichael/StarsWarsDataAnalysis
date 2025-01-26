@@ -55,6 +55,6 @@ To analyze viewership:
 
 ## Contact
 
-For any questions or suggestions, please reach out to [Ayobami Opefeyijimi] at [ayobamiwealth@gmail.com].
+For any questions or suggestions, please reach out to Ayobami Opefeyijimi at ayobamiwealth@gmail.com.
 
 
